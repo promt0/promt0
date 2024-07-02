@@ -1,4 +1,4 @@
-## 👋 Salut, je suis @promt0 
+## 👋 Salut, je suis Iyad (@promt0) 
 Je suis un étudiant en informatique curieux et motivé, passionné par l’exploration des limites de la technologie. 🧠💻
 
 ## 👀 Je suis intéressé par...
